@@ -4,7 +4,7 @@
 
 > 你知道的越多，你不知道的越多。
 
-🇨🇳 China Guangzhou・🕹Web developer
+🇨🇳 China Shenzhen・🕹Web developer
 
 https://lemonlyue.github.io/
 
